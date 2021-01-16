@@ -3,9 +3,9 @@
 ==
 :star: :point_right: 【大陆地址发布页】 ： www.tianxianggedh.life
 ------
-:star: :point_right: 【最新地址一】 ： wwww.52txg30.xyz
+:star: :point_right: 【最新地址一】 ： www.52txg30.xyz
 ------
-:star: :point_right: 【最新地址二】 ： wwww.52txg31.xyz
+:star: :point_right: 【最新地址二】 ： www.52txg31.xyz
 ------
 广告，友链，报错，求片联系方式
 ------
