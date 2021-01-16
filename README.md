@@ -1,11 +1,11 @@
 
 :bangbang::bangbang:天香阁导航 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【大陆地址发布页】 ： tianxianggedh.life
+:star: :point_right: 【大陆地址发布页】 ： www.tianxianggedh.life
 ------
-:star: :point_right: 【最新地址一】 ： 52txg30.xyz
+:star: :point_right: 【最新地址一】 ： wwww.52txg30.xyz
 ------
-:star: :point_right: 【最新地址二】 ： 52txg31.xyz
+:star: :point_right: 【最新地址二】 ： wwww.52txg31.xyz
 ------
 广告，友链，报错，求片联系方式
 ------
